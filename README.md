@@ -2,7 +2,7 @@
 
 ✨ Engineer | Researcher | AI Enthusiast | Tech Explorer
 
-I’m currently pursuing my PhD in Engineering Management at the American University of Sharjah, focusing on sustainability, blockchain, and AI-driven innovation.
+I’m an analytical and technology-driven professional, focusing on sustainability, blockchain, and AI-driven innovation.
 With experience in business analysis, I’m passionate about building meaningful tech solutions that blend data, design, and impact — whether it’s through AI models, digital products, or research frameworks for a greener, smarter future.
 
 💡 What I’m passionate about
